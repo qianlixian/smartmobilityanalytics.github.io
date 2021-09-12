@@ -3,8 +3,8 @@ Interational Business School Suzhou, Xi'an Jiaotong-Liverpool University
 
 **Vision** 
 
-_To be a leading platform on smart mobility analytics that will synergise the insights and needs of academic research, industry and education. 
-_
+To be a leading platform on smart mobility analytics that will synergise the insights and needs of academic research, industry and education. 
+
 
 **Mission**
 
