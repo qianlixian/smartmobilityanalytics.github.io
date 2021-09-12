@@ -16,6 +16,11 @@ To be a leading platform on smart mobility analytics that will synergise the ins
 •	Explore opportunities to contribute to the executive education programmes as well as undergraduate/postgraduate student projects in the domain of mobility and transport.
 
 
+**Scope**
+
+![image](https://user-images.githubusercontent.com/57204294/132978193-64bf5861-5c94-4dac-8ef6-d2e98b326b6f.png)
+
+
 **Structure and Team**
 
 ![image](https://user-images.githubusercontent.com/57204294/132977690-9b3bd4b3-7fcd-40e3-971c-3673774aaaa8.png)
